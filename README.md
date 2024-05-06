@@ -8,8 +8,7 @@ Meu nome é Eliana Sepe
 elianasepe@prof.educacao.sp.gov.br
 
 
-
-! [] (https://tenor.com/pt-BR/view/donald-duck-wink-thumbs-up-are-you-okay-gif-16477464)
+![](https://tenor.com/pt-BR/view/choaruiburey-vaguibu-gif-12324115614053945085)
 
 
 
