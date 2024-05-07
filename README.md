@@ -11,6 +11,10 @@ elianasepe@prof.educacao.sp.gov.br
 
 
 
+![](https://media1.tenor.com/m/CibYuS6wGwYAAAAC/daffy-duck-texting.gif)
+
+
+
 
 
 
