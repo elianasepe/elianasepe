@@ -8,10 +8,11 @@ Meu nome é Eliana Sepe
 elianasepe@prof.educacao.sp.gov.br
 
 
-
+![](https://media1.tenor.com/m/wKFY60nqg4sAAAAC/t%C3%B4-rico-estou-rico.gif)
 
 
 ![](https://media1.tenor.com/m/CibYuS6wGwYAAAAC/daffy-duck-texting.gif)
+
 
 
 
